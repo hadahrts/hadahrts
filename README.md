@@ -9,5 +9,5 @@
 - 🌱 I'm student in the PFLC (Preparatoria Federal Lázaro Cardenas)
 - 🤔 Any advice, help or idea is welcome!
 - 📫 My socialmedia user is always @hadahrts, ¡Follow me!
-- 😄 Mis pronombres son Ella/El
-- ⚡ Fun fact: No sé cómo usar esto...
+- 😄 Pronouns: she/he
+- ⚡ Fun fact: idk how to used this, rlly ...
