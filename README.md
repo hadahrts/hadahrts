@@ -1,5 +1,5 @@
 ### ¿Qué tal? 👋
-# Soy Ada Ortiz
+# I'm Ada Ortiz
 
 > **Me gustan los gatitos**
 
