@@ -1,7 +1,7 @@
-### ¿Qué tal? 👋
+### ¿WASUP? 👋
 # I'm Ada Ortiz
 
-> **Me gustan los gatitos**
+> **I like kitties**
 
 ![](https://media.tenor.com/L4CcAh4ljlwAAAAM/good-night-cute.gif)
 
