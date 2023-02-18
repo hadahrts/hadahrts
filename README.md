@@ -10,7 +10,7 @@
 - 🤔 Any advice, help or idea is welcome!
 - 📫 My socialmedia user is always @hadahrts, ¡Follow me!
 - 😄 Pronouns: she/he
-- ⚡ Fun fact: idk how to used this, rlly ...
+- ⚡ Fun fact: idk how to use this, rlly ...
 
 # **SCHEDULE**
 # My classes here!
